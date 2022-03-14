@@ -1,4 +1,4 @@
-### Hi there 👋
+### What's up, My name is Endi Jean 👋
 
 <div align="center">
   <a href="https://github.com/EndiJean">
